@@ -1,2 +1,0 @@
-# Hytayharytlar
-Online_shop
